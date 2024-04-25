@@ -1,4 +1,4 @@
-# Hi 👋🏼, I am Willy Nyawira!
+# Hello 👋🏼, I am Eunice Ngatia!
 
 Welcome to my GitHub profile 🙏🏼
 
